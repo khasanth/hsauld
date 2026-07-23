@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时24分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>农产品深加工扶持政策，农产品加工标的全线拉升</h3><br><p>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化。<br><br> | 来源：<code>https;//jrsyuyanzhibozuqiu.com.cn
+</code></p><br><br><h3>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%</h3><br><p>思源电气涨超4.5%，电网设备出口数据亮眼。<br><br> | 来源：<code>https;//jrszhibonbabisaigaoqingmianfei.com.cn
+</code></p><br><br><h3>全国食品安全抽检合格率达99.8%，从源头保障国民健康</h3><br><p>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元。<br><br> | 来源：<code>https;//jrszhibonbadidiaokanlanqiu.com.cn
+</code></p><br><br><h3>药明康德全球竞争力研究：CXO赛道的长期成长逻辑</h3><br><p>全国红色旅游暑期人次破3亿，年轻人占比超60%。<br><br> | 来源：<code>https;//jrszhibonbamianfeigaoqing.org.cn
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>知名私募调研钙钛矿设备标的，核心设备交付周期缩短。<br><br> | 来源：<code>https;//jrszhibonbazaixianguankanmianfeizhibo.com.cn
+</code></p><br><br><h3>海洋牧场建设规划，海洋渔业板块集体上涨</h3><br><p>中国西电集团整合预期：输配电行业央企整合的价值重估。<br><br> | 来源：<code>https;//jrszhiboshijiebei.org.cn
+</code></p><br><br><h3>蔚来汽车毛利率转正，单季业绩预告环比大幅改善</h3><br><p>头部券商到访家电出海龙头，海外自主品牌占比突破40%。<br><br> | 来源：<code>https;//jrszhibowuchajianzhibonbazai.com.cn
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>https;//kanmianfeizhiboqiusai.com.cn
+</code></p><br><br><h3>上半年全国新能源汽车电池出口同比增长40%</h3><br><p>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升。<br><br> | 来源：<code>https;//kanqiubanbazhibobazaixianzhibo.org.cn
+</code></p><br><br><h3>美欧贸易谈判达成协议，解决钢铁铝关税争端</h3><br><p>大模型在教育测评领域应用，自动批改作文准确率超教师。<br><br> | 来源：<code>https;//kanqiubazhiboguanwangrukou.org.cn
+</code></p><br><br><h3>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点</h3><br><p>政策性银行加大降息力度，基建项目融资成本大幅下降。<br><br> | 来源：<code>https;//kanqiutiyugaoqingzhibo.org.cn
+</code></p><br><br><h3>全国太湖流域蓝藻水华防控成效显著，水质稳定达标</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>https;//kanqiuzhibo88lanqiu.com.cn
+</code></p><br><br><h3>万华化学MDI技术优势：化工龙头的全产业链协同价值</h3><br><p>西湖暑期游客量突破600万人次，免费景区持续释放民生红利。<br><br> | 来源：<code>https;//kanqiuzhiboguanwangshouye.com.cn
+</code></p><br><br><h3>中兴通讯通信技术积累：6G时代的核心竞争力展望</h3><br><p>CBA联赛总决赛收视率创新高，本土球员表现亮眼。<br><br> | 来源：<code>https;//kanqiuzhibomianfeiguankanwangzhan.com.cn
+</code></p><br><br><h3>国内演出市场票房上半年突破200亿，演唱会经济爆发</h3><br><p>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑。<br><br> | 来源：<code>https;//kanqiuzhibowangzhantuijian.org.cn
+</code></p><br><br><h3>降准资金定向支持半导体产业，芯片板块获流动性利好</h3><br><p>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心。<br><br> | 来源：<code>https;//kanqiuzhiboxiaohuli.org.cn
+</code></p><br><br><h3>全国县域商业体系建设完成，农村消费市场潜力持续释放</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https;//kanqiuzhibozhizhu.com.cn
+</code></p><br><br><h3>燃料电池汽车示范应用，燃料电池标的全线异动</h3><br><p>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加。<br><br> | 来源：<code>https;//kk66zhibotiyuguanwangrukou.com.cn
+</code></p><br><br><h3>宁德时代异动拉升6.2%，海外储能项目持续落地</h3><br><p>外资资管举牌固态电解质企业，下一代电池技术获外资重仓。<br><br> | 来源：<code>https;//kqkanqiuzhiboapp.com.cn
+</code></p><br><br><h3>电影产业促进法修订，影视院线板块走强</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>https;//lanjingguanwang.com.cn
