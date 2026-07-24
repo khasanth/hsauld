@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分04秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国务院出台6方面24条政策，进一步扩大对外开放</h3><br><p>福州三坊七巷暑期客流超1500万，闽派文旅产品热销。<br><br> | 来源：<code>https://xingbachuanmei.com.cn
+</code></p><br><br><h3>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑</h3><br><p>牧原股份涨超4.7%，生猪价格周期拐点显现。<br><br> | 来源：<code>https://xingbakeguanwang.cn
+</code></p><br><br><h3>天合光能N型技术优势：光伏行业技术迭代下的领先地位</h3><br><p>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升。<br><br> | 来源：<code>https://xingbakezaixianguankan.cn
+</code></p><br><br><h3>全国城市节水型社会建设达标率达85%，用水效率提升</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://xingbashequ.cn
+</code></p><br><br><h3>法律大模型上线，AI辅助律师办案效率提升2倍</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>https://xingdaohang.cn
+</code></p><br><br><h3>河南卫视中国节日系列节目全网播放量突破200亿次</h3><br><p>浪潮信息高位震荡，算力主线的分歧与机会解析。<br><br> | 来源：<code>https://xingfu-bao.cn
+</code></p><br><br><h3>黄河流域生态保护和高质量发展新规划发布</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>https://xingfu-baodaohang.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>创新药医保谈判落地，创新药板块迎来情绪修复。<br><br> | 来源：<code>https://xingfu-shenghuo.cn
+</code></p><br><br><h3>存量房贷利率下调释放居民现金流，可选消费板块受益</h3><br><p>猪肉价格触底反弹，生猪养殖标的集体走强。<br><br> | 来源：<code>https://xingfubao.net.cn
+</code></p><br><br><h3>紫金矿业沿5日均线上行，趋势行情下的持仓策略</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>https://xingfubaoliulianshipin.cn
+</code></p><br><br><h3>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析</h3><br><p>央行加大逆回购操作并下调利率，短期流动性持续充裕。<br><br> | 来源：<code>https://xingfubaoxiazai.cn
+</code></p><br><br><h3>央行宣布全面降准0.5个百分点，释放长期资金超万亿</h3><br><p>实控人兜底式增持游戏出海龙头，员工响应参与超预期。<br><br> | 来源：<code>https://xingfudaohang.cn
+</code></p><br><br><h3>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑</h3><br><p>数字中国建设新规划，数字经济标的集体异动。<br><br> | 来源：<code>https://xingfushedaohang.cn
+</code></p><br><br><h3>华为星闪技术大规模商用，相关产业链标的领涨</h3><br><p>首套房贷款利率突破2.9%，刚需购房成本创历史新低。<br><br> | 来源：<code>https://xingkong-wuxian.com.cn
+</code></p><br><br><h3>农产品深加工扶持政策，农产品加工标的全线拉升</h3><br><p>全国企业债券发行规模上半年达3.5万亿元，直接融资占比提升。<br><br> | 来源：<code>https://xingkongchuanmeixianglingdezuopin.com.cn
+</code></p><br><br><h3>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://xingkongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>醋产品价格上调6%，食醋板块盈利改善</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>https://xingkongchuanmeizaixianmianfeiguankan.com.cn
+</code></p><br><br><h3>中部地区崛起新政策落地，打造先进制造业增长极</h3><br><p>云南泼水节暑期活动重启，单日参与游客突破50万人次。<br><br> | 来源：<code>https://xingkongqiutan.com.cn
+</code></p><br><br><h3>降准资金定向支持绿色能源，光伏风电板块获流动性利好</h3><br><p>锦浪科技海外渠道优势：分布式光伏的全球渠道网络壁垒。<br><br> | 来源：<code>https://xingkongwuxianchuanmei.com.cn
+</code></p><br><br><h3>成都马拉松开跑，赛道串联城市核心景点成网红赛事</h3><br><p>阳光电源放量上涨6.5%，海外逆变器订单爆发。<br><br> | 来源：<code>https://xingkongying-shi.com.cn
