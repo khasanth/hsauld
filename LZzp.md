@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分08秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>功率半导体价格上调6%，IGBT板块迎来涨价催化</h3><br><p>安琪酵母放量上涨3.6%，海外市场拓展超预期。<br><br> | 来源：<code>https://cao-liudizhi.cn
+</code></p><br><br><h3>三一重工数字化转型：工程机械龙头的效率提升路径</h3><br><p>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%。<br><br> | 来源：<code>https://cao-liujishutaolunqu.cn
+</code></p><br><br><h3>北向资金连续加仓海康威视，AI安防龙头获外资持续布局</h3><br><p>中国橄榄球队首次晋级亚运会四强，项目普及度快速提升。<br><br> | 来源：<code>https://cao-liuluntan.cn
+</code></p><br><br><h3>三一重工海外收入翻倍，单季业绩预告超预期</h3><br><p>苏州园林暑期接待人次破500万，江南古典文旅持续走红。<br><br> | 来源：<code>https://cao-liushequ.cn
+</code></p><br><br><h3>产业资本连续增持智能电网标的，特高压产业链获资本布局</h3><br><p>全球跨境旅游人次上半年突破7亿，旅游业全面复苏。<br><br> | 来源：<code>https://cao-liuwang.cn
+</code></p><br><br><h3>国内AI伦理规范发布，引导大模型健康有序发展</h3><br><p>明阳智能大兆瓦风机优势：海上风电赛道的龙头领先性。<br><br> | 来源：<code>https://caodengheshang.cn
+</code></p><br><br><h3>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露</h3><br><p>国产历史剧细节考究，多部作品成为全网热议文化现象。<br><br> | 来源：<code>https://caoliuapp.cn
+</code></p><br><br><h3>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益</h3><br><p>全国智慧健身器材普及至社区，运动数据实时上传健康平台。<br><br> | 来源：<code>https://caoliucl.cn
+</code></p><br><br><h3>全球跨境旅游人次上半年突破7亿，旅游业全面复苏</h3><br><p>亨通光电海缆业务放量，前三季度业绩预增超45%。<br><br> | 来源：<code>https://caoliuduanshipin.cn
+</code></p><br><br><h3>暑期高铁游订单同比增长50%，"坐着高铁看中国"成潮流</h3><br><p>全国家政服务业营收上半年同比增长16%，民生消费升温。<br><br> | 来源：<code>https://caoliuerweima.cn
+</code></p><br><br><h3>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑</h3><br><p>上半年全国文化产业营收同比增长14%，文旅融合加速。<br><br> | 来源：<code>https://caoliuhuijiadelu.cn
+</code></p><br><br><h3>2026年美丽中国建设成效显著，绿色发展底色更加鲜明</h3><br><p>恒力石化炼化盈利修复，前三季度业绩预增超35%。<br><br> | 来源：<code>https://caoliujishutaolunqu.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>新能源汽车换电模式推广政策，换电产业链拉升。<br><br> | 来源：<code>https://caoliushe-qu.cn
+</code></p><br><br><h3>张伟丽卫冕UFC女子草量级冠军，成功守住金腰带</h3><br><p>全国街舞联赛覆盖百城，街舞爱好者规模破千万。<br><br> | 来源：<code>https://caoliushe.cn
+</code></p><br><br><h3>铁矿石价格反弹10%，铁矿上市公司盈利边际改善</h3><br><p>全国扬子鳄野生种群数量突破2万只，野外放归成效显著。<br><br> | 来源：<code>https://caoliushequdizhi.cn
+</code></p><br><br><h3>北向资金举牌广告营销龙头，AI营销高增获外资持续流入</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>https://caoliushequguanwang.cn
+</code></p><br><br><h3>福耀玻璃全球汽车玻璃布局：细分赛道全球龙头的壁垒</h3><br><p>国内AI产业规模破2万亿，年增速超35%成经济新引擎。<br><br> | 来源：<code>https://caoliushequjishutaolunqu.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：动力电池+储能双轮驱动成长</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放。<br><br> | 来源：<code>https://caoliushequrukou.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：国内创新药龙头的研发投入回报</h3><br><p>海绵城市建设推广，海绵城市板块集体上涨。<br><br> | 来源：<code>https://caoliushequwangzhi.cn
+</code></p><br><br><h3>苏州推出“姑苏八点半”升级活动，夜间消费场景拓展至全域</h3><br><p>钠离子电池实现装车应用，钠电池产业链全线爆发。<br><br> | 来源：<code>https://caoliushequxinzhizuixinxiaoxi.cn
