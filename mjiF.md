@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持</h3><br><p>隆平高科涨超4.4%，转基因商业化推进加速。<br><br> | 来源：<code>guoguangjixie.cn
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>2026年暑期文旅总收入突破2万亿，创历史同期新高。<br><br> | 来源：<code>bieyao.cn
+</code></p><br><br><h3>生物育种企业开启新股申购，转基因商业化落地节奏领先</h3><br><p>露营经济持续升温，全国露营地数量突破4万个。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>ykyxz.cn
+</code></p><br><br><h3>天赐材料电解液成本控制：行业龙头的规模优势解析</h3><br><p>万科A异动，地产链政策宽松预期持续升温。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>社保基金新进生物育种标的，布局农业科技长期成长</h3><br><p>大秦铁路异动拉升2.8%，煤炭运输量稳步提升。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>涪陵榨菜产品提价能力：细分赛道龙头的定价权解析</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>高股息板块持续受宠：银行、保险、煤炭的配置价值分析</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>中国女子冰球队世锦赛升组，重返顶级赛事行列</h3><br><p>存量房贷利率批量下调，银行板块短期冲击可控。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>全国篮球联赛NBL总决赛落幕，陕西队时隔5年再度夺冠</h3><br><p>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>全国食品安全抽检合格率达99.8%，从源头保障国民健康</h3><br><p>长江经济带发展成效显著，生态优先绿色发展格局形成。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>隆基绿能全球化布局：光伏龙头规避贸易壁垒的路径解析</h3><br><p>中际旭创光模块技术优势：全球数通市场的份额扩张。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>东方财富互联网券商优势：流量变现的长期成长空间</h3><br><p>中国花游队世锦赛集体项目夺冠，实现金牌零的突破。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>大模型在气象灾害预警领域应用，预警覆盖率提升至98%</h3><br><p>中国船舶涨超4.5%，造船行业订单持续饱满。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>法国二季度GDP增长0.4%，经济逐步走出停滞</h3><br><p>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>中芯国际单季盈利创历史新高，半导体板块全线走强</h3><br><p>成渝双城经济圈建设三年成效显著，GDP总量突破8万亿元。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>北交所改革政策落地，北交所概念股集体走强</h3><br><p>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>全国美术馆年展览超2万场，艺术惠民覆盖千万群众</h3><br><p>华域汽车汽车零部件平台：国内汽车零部件龙头的价值。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>特斯拉4680电池量产提速，锂电结构件标的集体上涨</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>国内AI算力规模突破50EFLOPS，稳居全球第二。<br><br> | 来源：<code>www.michaelyang.cn
