@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分15秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期</h3><br><p>中国电建异动拉升3.3%，新能源电站装机量高增。<br><br> | 来源：<code>https://top-kaiyundianjing.com.cn
+</code></p><br><br><h3>全国房贷利率动态调整机制优化，更多城市进入低利率区间</h3><br><p>以色列经济逐步复苏，高科技产业重回增长轨道。<br><br> | 来源：<code>https://top-manguan-sports.com.cn
+</code></p><br><br><h3>全国煤化工行业低碳改造完成，碳排放强度下降20%</h3><br><p>中国-东盟自贸区3.0版谈判完成，贸易便利化升级。<br><br> | 来源：<code>https://top-oubao-sports.com.cn
+</code></p><br><br><h3>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者</h3><br><p>隆平高科种业龙头优势：国内种业龙头的研发与渠道积累。<br><br> | 来源：<code>https://top-worldcup-betting.com
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>全国桨板赛事超百场，水上运动参与人数破千万。<br><br> | 来源：<code>https://top-worldcup-odds.com
+</code></p><br><br><h3>东方电气氢能布局：能源装备龙头的第二成长曲线解析</h3><br><p>尾矿资源综合利用政策，尾矿回收板块走强。<br><br> | 来源：<code>https://top-yytiyu.com.cn
+</code></p><br><br><h3>赣锋锂业涨超5.3%，固态电池试点线投产</h3><br><p>宝钢股份绿色低碳优势：钢铁行业碳中和下的领先地位。<br><br> | 来源：<code>https://toupai-shipin.com.cn
+</code></p><br><br><h3>全国社区运动会覆盖千城，群众家门口参与体育赛事</h3><br><p>天然气价格季节性上涨15%，燃气运营板块迎来行情。<br><br> | 来源：<code>https://toupai-zipai.com.cn
+</code></p><br><br><h3>国产历史剧细节考究，多部作品成为全网热议文化现象</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>https://toupaizipai.com.cn
+</code></p><br><br><h3>全国餐饮营收上半年突破4万亿，夜间餐饮占比超60%</h3><br><p>网络视听内容监管优化，长视频平台标的拉升。<br><br> | 来源：<code>https://tu-tu-jiang.com.cn
+</code></p><br><br><h3>中国五子连珠队世界杯包揽全部金牌，优势项目无人能敌</h3><br><p>千禾味业放量上涨4.3%，零添加产品份额持续提升。<br><br> | 来源：<code>https://tv91.com.cn
+</code></p><br><br><h3>饼干产品价格上涨3%，食品细分板块盈利提升</h3><br><p>5年期LPR超预期下调，地产链迎来全面行情催化。<br><br> | 来源：<code>https://uzcnby-vip-web.com.cn
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://vip-188tiyu-web.com.cn
+</code></p><br><br><h3>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>https://vip-9170-jinsha.com
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>全国小微企业贷款余额突破60万亿元，融资成本进一步下降。<br><br> | 来源：<code>https://vip-bw-tiyu.com.cn
+</code></p><br><br><h3>全国篮球联赛NBL总决赛落幕，陕西队时隔5年再度夺冠</h3><br><p>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%。<br><br> | 来源：<code>https://vip-fb-tiyu.com.cn
+</code></p><br><br><h3>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓</h3><br><p>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛。<br><br> | 来源：<code>https://vip-feifan-sports.com.cn
+</code></p><br><br><h3>国产大飞机C919批量交付，民航产业链标的上涨</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>https://vip-jb-tiyu.com.cn
+</code></p><br><br><h3>机构资金净买入宁德时代12亿，核心资产获大资金加仓</h3><br><p>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破。<br><br> | 来源：<code>https://vip-jiabo-sports.com.cn
+</code></p><br><br><h3>南京马拉松开跑，选手破3万赛事服务升级体验大幅提升</h3><br><p>保险资管举牌机器人减速器标的，核心零部件获机构重仓。<br><br> | 来源：<code>https://vip-ky-gaming.com.cn
