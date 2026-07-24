@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国产航母新进展，军工船舶板块集体异动</h3><br><p>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局。<br><br> | 来源：<code>https://huangguatv.com.cn
+</code></p><br><br><h3>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善</h3><br><p>恒瑞医药创新药放量，前三季度业绩预增超40%。<br><br> | 来源：<code>https://huangguavideos.cn
+</code></p><br><br><h3>绿电交易规模翻倍，绿电运营板块集体上涨</h3><br><p>自动驾驶大模型落地，城市NOA覆盖全国所有城市道路。<br><br> | 来源：<code>https://huangguayingshizaixiankan.com.cn
+</code></p><br><br><h3>多地推出“文旅+体育”融合产品，马拉松、徒步游订单激增</h3><br><p>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期。<br><br> | 来源：<code>https://huangguazhibo.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿</h3><br><p>充电桩下乡政策落地，充电桩产业链标的走强。<br><br> | 来源：<code>https://huangmantiantang.com.cn
+</code></p><br><br><h3>全面降准叠加LPR下调，市场流动性环境显著优化</h3><br><p>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划。<br><br> | 来源：<code>https://huangse-youxi.com.cn
+</code></p><br><br><h3>上半年全国文化产业营收同比增长14%，文旅融合加速</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>https://huangsecangkuzuixindizhi.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>超180家机构到访汽车轻量化标的，一体化压铸产能释放。<br><br> | 来源：<code>https://huangyewangzhan.cn
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>登海种业放量上涨4.0%，玉米种子需求持续向好。<br><br> | 来源：<code>https://huangyou-daquan.com.cn
+</code></p><br><br><h3>全国二手车交易量上半年突破1000万辆，流通市场活跃</h3><br><p>罕见病药物医保激励政策，罕见病药标的走强。<br><br> | 来源：<code>https://huangyou-tuijian.com.cn
+</code></p><br><br><h3>华域汽车涨超3.9%，汽车零部件龙头业绩超预期</h3><br><p>长城汽车异动拉升5.9%，坦克系列销量持续高增。<br><br> | 来源：<code>https://huangyou-wang.com.cn
+</code></p><br><br><h3>晶澳科技涨超4.8%，光伏组件出口数据亮眼</h3><br><p>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径。<br><br> | 来源：<code>https://huangyou-wangzhan.com.cn
+</code></p><br><br><h3>全国轮滑锦标赛举办，参赛选手破万年龄跨度覆盖3-70岁</h3><br><p>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生。<br><br> | 来源：<code>https://huangyou-xiazai.com.cn
+</code></p><br><br><h3>亿纬锂能储能订单爆发，前三季度业绩预增90%</h3><br><p>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期。<br><br> | 来源：<code>https://huangyou-zuofang.com.cn
+</code></p><br><br><h3>宝钢股份高端钢铁布局：国内钢铁龙头的产品结构升级</h3><br><p>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍。<br><br> | 来源：<code>https://huangyoumianfeixiazai.com.cn
+</code></p><br><br><h3>社保基金现身半导体材料龙头，国产替代率突破70%</h3><br><p>AI实时翻译耳机普及，跨语言沟通障碍彻底打破。<br><br> | 来源：<code>https://huangyouquan.com.cn
+</code></p><br><br><h3>长安汽车放量上涨4.9%，深蓝品牌月销破3万</h3><br><p>杀菌剂价格上调10%，农药细分板块迎来行情。<br><br> | 来源：<code>https://huangyoushouyou.com.cn
+</code></p><br><br><h3>中国中车全球轨交布局：一带一路下的海外订单增长逻辑</h3><br><p>全国水土流失治理面积年度完成6万平方公里，生态修复提速。<br><br> | 来源：<code>https://huangyoutuijian.com.cn
+</code></p><br><br><h3>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径</h3><br><p>赣粤高速涨超2.3%，江西区域车流量稳步提升。<br><br> | 来源：<code>https://huangyoutuijianshouji.com.cn
+</code></p><br><br><h3>全国居民储蓄存款增速放缓，资金向消费和投资领域转移</h3><br><p>国产EDA工具实现全流程覆盖，半导体软件标的走强。<br><br> | 来源：<code>https://huangyoutuijianwangye.com.cn
