@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>贵州茅台站稳1700元关口，白酒板块估值修复开启</h3><br><p>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练。<br><br> | 来源：<code>https://majiang-zaixian-wan-mianfei-wangye-ban.com.cn
+</code></p><br><br><h3>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏</h3><br><p>国产动画剧集全网播放量突破300亿，传统文化元素成爆款密码。<br><br> | 来源：<code>https://majiang-zaixian-wan.com.cn
+</code></p><br><br><h3>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷</h3><br><p>AI语音合成技术突破，克隆声音仅需3秒样本。<br><br> | 来源：<code>https://mama-depengyouzaixianguankan.com.cn
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>https://mama-zhudong-suo-wen-erzi-de-xinlijibing.com.cn
+</code></p><br><br><h3>石大胜华异动拉升4.6%，溶剂行业供需格局优化</h3><br><p>全国200城启动夜间消费节，夜间经济规模突破15万亿。<br><br> | 来源：<code>https://mamadepengyou.com.cn
+</code></p><br><br><h3>央行表态保持流动性合理充裕，后续政策工具储备充足</h3><br><p>中国书法申遗成功，传统艺术走向世界舞台。<br><br> | 来源：<code>https://mamahema.com.cn
+</code></p><br><br><h3>存款利率下调后居民储蓄搬家，A股新增开户数环比大增</h3><br><p>宁德时代商业模式拆解：动力电池龙头的护城河有多深。<br><br> | 来源：<code>https://manhuatiantang.com.cn
+</code></p><br><br><h3>氢能示范城市群政策落地，氢能源板块全线走强</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>https://manhuatong.com.cn
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>中国中车全球轨交布局：一带一路下的海外订单增长逻辑。<br><br> | 来源：<code>https://manhuaxiuxiu.cn
+</code></p><br><br><h3>中国平安涨超3.4%，寿险新业务价值增速转正</h3><br><p>存款利率下调后居民储蓄搬家，A股新增开户数环比大增。<br><br> | 来源：<code>https://mantiantang.com.cn
+</code></p><br><br><h3>存款利率下调后居民储蓄搬家，A股新增开户数环比大增</h3><br><p>车规级芯片国产替代加速，汽车半导体板块走强。<br><br> | 来源：<code>https://maokuai.com.cn
+</code></p><br><br><h3>长安汽车放量上涨4.9%，深蓝品牌月销破3万</h3><br><p>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及。<br><br> | 来源：<code>https://maomishequ.cn
+</code></p><br><br><h3>通威股份硅料产能优势：低成本产能释放下的行业格局</h3><br><p>2026年全国体育产业总规模突破4万亿，全民健身蔚然成风。<br><br> | 来源：<code>https://mayaluntan.cn
+</code></p><br><br><h3>机构+北向资金合力买入比亚迪9亿，整车龙头获资金认可</h3><br><p>药明康德MACD金叉，技术指标共振带来布局机会。<br><br> | 来源：<code>https://meilidexiaomitao.com.cn
+</code></p><br><br><h3>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期</h3><br><p>10年期国债收益率下行至历史低位，高股息资产配置价值凸显。<br><br> | 来源：<code>https://meimeidaohang.cn
+</code></p><br><br><h3>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%</h3><br><p>多地出台民宿管理新规，规范行业发展保障游客权益。<br><br> | 来源：<code>https://meinu-bei-cao.com.cn
+</code></p><br><br><h3>拉美多国签署货币互换协议，减少对美元依赖</h3><br><p>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升。<br><br> | 来源：<code>https://meinu-bei-gan.com.cn
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>阳光电源涨超7%，逆变器海外订单持续超预期。<br><br> | 来源：<code>https://meinu-bei-ri.com.cn
+</code></p><br><br><h3>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野</h3><br><p>实控人承诺6个月内不减持机器人控制器标的，稳定股价。<br><br> | 来源：<code>https://meinu-beicao.com.cn
+</code></p><br><br><h3>央行表态不搞"大水漫灌"，精准降息支持实体经济重点领域</h3><br><p>智能网联汽车准入试点落地，车路协同标的拉升。<br><br> | 来源：<code>https://meinu-gao-ji.com.cn
