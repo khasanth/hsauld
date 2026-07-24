@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>璞泰来负极材料盈利改善，前三季度业绩预增超40%</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://guochan-yiqu.com.cn
+</code></p><br><br><h3>银保监会出台新政，进一步降低实体经济融资成本</h3><br><p>美的集团海外收入高增，前三季度业绩预增超25%。<br><br> | 来源：<code>https://guochan-yiquerqu.com.cn
+</code></p><br><br><h3>游资知名席位联手买入登海种业5600万，种业标的获追捧</h3><br><p>中际旭创800G光模块放量，前三季度业绩预增130%。<br><br> | 来源：<code>https://guochan-zaixian-guankan.com.cn
+</code></p><br><br><h3>钠离子电池实现装车应用，钠电池产业链全线爆发</h3><br><p>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光。<br><br> | 来源：<code>https://guochan-zaixian.com.cn
+</code></p><br><br><h3>东方财富互联网券商生态：流量变现的长期成长逻辑</h3><br><p>海产品全产业链涨价，水产板块全面异动。<br><br> | 来源：<code>https://guochan-zaixianguankan.com.cn
+</code></p><br><br><h3>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大</h3><br><p>知名私募大手笔增持TOPCon电池标的，持仓占比达4%。<br><br> | 来源：<code>https://guochan-zipai.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研智能电网标的，特高压设备中标数据</h3><br><p>国内大模型备案数量破千款，行业应用落地加速。<br><br> | 来源：<code>https://guochanchengren.com.cn
+</code></p><br><br><h3>建筑光伏一体化政策，BIPV标的全线拉升</h3><br><p>全国光伏装机容量突破9亿千瓦，分布式光伏占比超60%。<br><br> | 来源：<code>https://guochanchuanmei.com.cn
+</code></p><br><br><h3>东方雨虹企稳反弹4.2%，地产链需求边际改善</h3><br><p>央行加大公开市场操作力度，资金面维持平稳宽松。<br><br> | 来源：<code>https://guochandiyiye.com.cn
+</code></p><br><br><h3>机构专用席位净买入泸州老窖1.9亿，白酒标的获长线资金加仓</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>https://guochanjingpinshipin.com.cn
+</code></p><br><br><h3>北向资金连续流入紫金矿业，黄金龙头外资持仓持续提升</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>https://guochanjingpinzaixian.com.cn
+</code></p><br><br><h3>长安汽车新能源盈利转正，单季净利润同比增200%</h3><br><p>1年期LPR下调10BP，实体经济融资成本进一步下行。<br><br> | 来源：<code>https://guochanjinpin-new.com.cn
+</code></p><br><br><h3>养老金新进创新药龙头，布局创新管线长期成长逻辑</h3><br><p>中芯国际放量突破平台，短线多头力量持续增强。<br><br> | 来源：<code>https://guochanjiujiu.com.cn
+</code></p><br><br><h3>社保基金新进汽车座椅龙头，布局汽车轻量化赛道</h3><br><p>国家文化数字化战略落地，文化资源线上共享覆盖全民。<br><br> | 来源：<code>https://guochanjiujiujiu.com.cn
+</code></p><br><br><h3>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https://guochanqu.com.cn
+</code></p><br><br><h3>三一重工突破半年线，中期趋势逐步转强</h3><br><p>海南自贸港封关运作准备全面就绪，政策红利加速释放。<br><br> | 来源：<code>https://guochanshipin-new.com.cn
+</code></p><br><br><h3>AI代码助手普及，程序员开发效率平均提升40%</h3><br><p>通威股份硅料盈利修复，单季业绩预告环比大增。<br><br> | 来源：<code>https://guochantoupai.com.cn
+</code></p><br><br><h3>QFII集中调研乳制品龙头，高端产品占比提升至45%</h3><br><p>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界。<br><br> | 来源：<code>https://guochanyiqu.com.cn
+</code></p><br><br><h3>机构专用席位净买入许继电气5800万，特高压龙头获加仓</h3><br><p>新能源汽车出口数据翻倍，整车出口标的集体异动。<br><br> | 来源：<code>https://guochanyiquerqusanqu.com.cn
+</code></p><br><br><h3>汉缆股份涨超3.9%，电网投资带动订单增长</h3><br><p>印度经济增速达7.2%，成为全球增长最快主要经济体。<br><br> | 来源：<code>https://guochanzhuanqu.com.cn
