@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分53秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持</h3><br><p>大秦铁路异动拉升2.8%，煤炭运输量稳步提升。<br><br> | 来源：<code>https://91mianfeiban.com.cn
+</code></p><br><br><h3>电源芯片价格上涨7%，模拟芯片板块景气回升</h3><br><p>碳排放权交易市场扩容，碳交易标的全线异动。<br><br> | 来源：<code>https://91n-com.com.cn
+</code></p><br><br><h3>全国研学基地超万家，覆盖所有地级市满足学生实践需求</h3><br><p>6G技术研发加速：通信设备、射频器件的布局窗口。<br><br> | 来源：<code>https://91ncc.com.cn
+</code></p><br><br><h3>宁沪高速涨超2.5%，公路车流量持续复苏</h3><br><p>平高电气特高压开关技术：输配电设备龙头的国产替代。<br><br> | 来源：<code>https://91ncn.com.cn
+</code></p><br><br><h3>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%</h3><br><p>葡萄牙经济增速达2.3%，旅游业持续拉动增长。<br><br> | 来源：<code>https://91ncom.cn
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>基金公司集体到访消费电子龙头，苹果新品备货量曝光。<br><br> | 来源：<code>https://91ncom.com.cn
+</code></p><br><br><h3>工业大模型落地万座工厂，生产效率平均提升30%</h3><br><p>海尔智家稳步上行，慢牛趋势下的持仓节奏。<br><br> | 来源：<code>https://91ncome2808b.com.cn
+</code></p><br><br><h3>亨通光电海洋能源布局：光通信龙头的第二成长曲线</h3><br><p>世界大学排名发布，清华北大首次双双跻身全球前十。<br><br> | 来源：<code>https://91ncon.com.cn
+</code></p><br><br><h3>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷</h3><br><p>药明康德MACD金叉，技术指标共振带来布局机会。<br><br> | 来源：<code>https://91niu.com.cn
+</code></p><br><br><h3>保险资管扎堆调研CRO龙头，创新药管线临床数据披露</h3><br><p>京津冀协同发展十周年，区域经济总量突破12万亿元。<br><br> | 来源：<code>https://91nwang.cn
+</code></p><br><br><h3>北向资金连续增持快递物流龙头，单票盈利改善获外资加仓</h3><br><p>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆。<br><br> | 来源：<code>https://91pian.cn
+</code></p><br><br><h3>长城国家文化公园建设完工，沿线游览步道贯通超万公里</h3><br><p>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析。<br><br> | 来源：<code>https://91piankan.cn
+</code></p><br><br><h3>中国平安权重护盘，大金融板块托底A股指数</h3><br><p>全国大学生就业帮扶行动启动，国企新增岗位超80万。<br><br> | 来源：<code>https://91pojieban.cn
+</code></p><br><br><h3>新疆交建一带一路优势：新疆区域基建的长期成长逻辑</h3><br><p>农业机械化推广政策，农机装备板块全线异动。<br><br> | 来源：<code>https://91pro.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>国产大模型出海加速，东南亚市场份额突破30%。<br><br> | 来源：<code>https://91shequ.com.cn
+</code></p><br><br><h3>药明康德全球竞争力研究：CXO赛道的长期成长逻辑</h3><br><p>北向资金举牌人形机器人标的，持股比例首次突破5%红线。<br><br> | 来源：<code>https://91shi.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>https://91shipin.com.cn
+</code></p><br><br><h3>国内自驾游人次破10亿，新能源自驾路线成热门选择</h3><br><p>1年期LPR下调降低企业短期融资成本，经营活力提升。<br><br> | 来源：<code>https://91shipinwang.cn
+</code></p><br><br><h3>宁德时代突破关键压力位，后续上涨空间与支撑位一览</h3><br><p>三一重工全球化布局：工程机械龙头的第二增长曲线。<br><br> | 来源：<code>https://91wangcn.com.cn
+</code></p><br><br><h3>企业贷款利率创历史新低，制造业投资意愿有望回升</h3><br><p>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破。<br><br> | 来源：<code>https://91wangguanwang.com.cn
