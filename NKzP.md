@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>养老金新进光伏逆变器标的，海外市占率提升获长期配置</h3><br><p>高管团队集体增持短视频出海标的，合计增持超9000万。<br><br> | 来源：<code>https://rihanjiujiu.com.cn
+</code></p><br><br><h3>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展</h3><br><p>荷兰经济避免衰退，服务业支撑经济稳定增长。<br><br> | 来源：<code>https://rihansanji.com.cn
+</code></p><br><br><h3>沙漠光伏基地建设规划，大基地光伏标的全线异动</h3><br><p>全国消费促进月活动启动，覆盖超百万商家拉动暑期消费。<br><br> | 来源：<code>https://rihanwuma.com.cn
+</code></p><br><br><h3>全国数字经济规模上半年达32万亿元，同比增长10.2%</h3><br><p>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%。<br><br> | 来源：<code>https://rihanyiqu.com.cn
+</code></p><br><br><h3>养老金现身创新器械标的，海外FDA获批进度超预期</h3><br><p>养老服务体系建设政策，养老产业标的全线走强。<br><br> | 来源：<code>https://rihanzaixian.com.cn
+</code></p><br><br><h3>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>https://rihanzaixianmianfeiguankan.com.cn
+</code></p><br><br><h3>亿纬锂能放量上涨6.4%，储能电池出货量翻倍</h3><br><p>维生素A价格单月上涨18%，饲料添加剂板块迎来行情。<br><br> | 来源：<code>https://rihanzaixianyongjiuyuming.com.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>https://ririshipin.com.cn
+</code></p><br><br><h3>中国男子射击队世锦赛斩获6金，奥运席位全部拿满</h3><br><p>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩。<br><br> | 来源：<code>https://rou-rou-wu.com.cn
+</code></p><br><br><h3>保险资管扎堆调研CRO龙头，创新药管线临床数据披露</h3><br><p>全国生态环境监测网络全覆盖，实时数据向公众开放。<br><br> | 来源：<code>https://rouputuan.com.cn
+</code></p><br><br><h3>故宫博物院年接待观众突破2000万人次，文创产品营收超20亿</h3><br><p>美联储降息后美债收益率下行，外资回流中国权益市场。<br><br> | 来源：<code>https://rpghuangyou.com.cn
+</code></p><br><br><h3>百亿级机构组团到访低空经济龙头，低空试飞进展获披露</h3><br><p>老旧小区改造升级，家装家居标的全线拉升。<br><br> | 来源：<code>https://ruanmengtutujiang.com.cn
+</code></p><br><br><h3>大秦铁路异动拉升2.8%，煤炭运输量稳步提升</h3><br><p>加拿大经济保持增长，能源和科技产业双驱动。<br><br> | 来源：<code>https://rugzdf.cn
+</code></p><br><br><h3>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破</h3><br><p>全国连锁品牌门店数量上半年同比增长12%，线下消费复苏。<br><br> | 来源：<code>https://rumengshequ.cn
+</code></p><br><br><h3>北京建工放量上涨3.0%，京津冀基建项目落地加速</h3><br><p>阳光电源研发投入：逆变器龙头持续保持技术领先的原因。<br><br> | 来源：<code>https://rusetuxidongman.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌。<br><br> | 来源：<code>https://rutoujiaojiazu.com.cn
+</code></p><br><br><h3>海洋强国建设新规划发布，海洋经济总量突破9万亿元</h3><br><p>宁德时代Q3净利润同比增长70%，大超市场预期。<br><br> | 来源：<code>https://rutoujiaojiazuzaixianguankan.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>https://rutoujiazu.com.cn
+</code></p><br><br><h3>安凯客车涨超4.3%，客车出口订单同比增长</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>https://san-shangyouya.com.cn
+</code></p><br><br><h3>云南建投放量上涨3.4%，南亚基建订单落地加速</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>https://sands9570.com
