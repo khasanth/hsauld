@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国平安综合金融版图：保险龙头的转型进展与空间</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://www91ncom.com.cn
+</code></p><br><br><h3>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚</h3><br><p>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放。<br><br> | 来源：<code>https://www91ncomcn.com.cn
+</code></p><br><br><h3>外资机构席位净买入沪硅产业8000万，硅片龙头获外资加仓</h3><br><p>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持。<br><br> | 来源：<code>https://www91ncomtanhua.com.cn
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>通用人工智能创新平台落地，大模型标的拉升。<br><br> | 来源：<code>https://www91wang.cn
+</code></p><br><br><h3>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌</h3><br><p>上半年全国显示面板出口同比增长21%，电子产业优势巩固。<br><br> | 来源：<code>https://xiai-yepu.com.cn
+</code></p><br><br><h3>阳光电源研发投入：逆变器龙头持续保持技术领先的原因</h3><br><p>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%。<br><br> | 来源：<code>https://xiangjiao-manhua.com.cn
+</code></p><br><br><h3>中国举重队世锦赛打破12项世界纪录，优势项目持续领先</h3><br><p>兆易创新涨超4.4%，存储芯片价格触底反弹。<br><br> | 来源：<code>https://xiangjiao-shipin.cn
+</code></p><br><br><h3>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心</h3><br><p>仓位管理是生存之本：满仓梭哈的人，迟早会被市场淘汰。<br><br> | 来源：<code>https://xiangjiao-shipin.com.cn
+</code></p><br><br><h3>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆</h3><br><p>贵州茅台品牌价值深度解析：白酒龙头的定价权逻辑。<br><br> | 来源：<code>https://xiangjiao-shipinxiazai.com.cn
+</code></p><br><br><h3>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价</h3><br><p>上半年全国战略性新兴产业增加值同比增长9.3%。<br><br> | 来源：<code>https://xiangjiao-zh.com.cn
+</code></p><br><br><h3>国家版本馆全部建成开放，典藏中华文脉珍贵资源</h3><br><p>国际铜价持续上行，铜业板块标的全线异动。<br><br> | 来源：<code>https://xiangjiaovideos.cn
+</code></p><br><br><h3>全国城市餐厨垃圾处理能力突破10万吨/日，资源化利用</h3><br><p>油气增储上产政策，油气设备板块集体上涨。<br><br> | 来源：<code>https://xiangshuichun.org.cn
+</code></p><br><br><h3>新能源汽车购置税减免延期，整车板块集体走强</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>https://xiangxiang-fu-zhai.com.cn
+</code></p><br><br><h3>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径</h3><br><p>机构+北向合力买入山西汾酒1.7亿，清香白酒龙头获资金布局。<br><br> | 来源：<code>https://xiao-huangyou.com.cn
+</code></p><br><br><h3>大模型在交通领域应用，城市拥堵率下降20%</h3><br><p>全国铁人三项联赛覆盖20城，参赛人数同比增长80%。<br><br> | 来源：<code>https://xiao-lan-shipin.com.cn
+</code></p><br><br><h3>云南暑期游订单破3000万，文旅收入同比增长85%</h3><br><p>产业资本集中增持AI教育龙头，付费用户高增获资本布局。<br><br> | 来源：<code>https://xiao-lanshipin.com.cn
+</code></p><br><br><h3>政策性降息支持汽车消费，新能源汽车板块迎来定向利好</h3><br><p>全国金丝猴种群数量突破4万只，多个栖息地生态改善。<br><br> | 来源：<code>https://xiao-mitao.com.cn
+</code></p><br><br><h3>存量房贷利率批量下调，银行板块短期冲击可控</h3><br><p>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志。<br><br> | 来源：<code>https://xiao-shimei.com.cn
+</code></p><br><br><h3>充电桩下乡政策落地，充电桩产业链标的走强</h3><br><p>地方国资战略入股人形电机龙头，助力核心零部件国产化。<br><br> | 来源：<code>https://xiao-wu-nu.com.cn
+</code></p><br><br><h3>世界文化遗产新增2处，我国世遗总数增至60处</h3><br><p>上半年全国新能源汽车电池出口同比增长40%。<br><br> | 来源：<code>https://xiaobaogou.com.cn
