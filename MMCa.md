@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分25秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>房贷利率动态调整机制优化，重点城市房贷利率进一步下行</h3><br><p>天津推出“夜津城”活动，相声演出夜间场次一票难求。<br><br> | 来源：<code>https://mogushipinwangyeban.com.cn
+</code></p><br><br><h3>张家界暑期接待人次破2000万，山地游产品持续热销</h3><br><p>服务机器人试点政策落地，家用机器人标的异动。<br><br> | 来源：<code>https://mogushipinwangzhan.com.cn
+</code></p><br><br><h3>中国水球队世锦赛闯入八强，水上集体项目进步显著</h3><br><p>通威股份硅料盈利修复，单季业绩预告环比大增。<br><br> | 来源：<code>https://mogushipinxiazai.com.cn
+</code></p><br><br><h3>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://mogushipinzaixianguankan.com.cn
+</code></p><br><br><h3>基金公司集体到访人形电机龙头，力矩电机产能释放数据</h3><br><p>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑。<br><br> | 来源：<code>https://mogutvchengpinren.com.cn
+</code></p><br><br><h3>机构席位大额买入澜起科技8500万，内存芯片龙头获布局</h3><br><p>商业航天准入政策放宽，商业航天标的异动。<br><br> | 来源：<code>https://mogutvrukou.com.cn
+</code></p><br><br><h3>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%</h3><br><p>全国县域旅游百强县榜单发布，江浙地区占比超六成。<br><br> | 来源：<code>https://mogutvwangyeban.com.cn
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>万科A核心城市去化超预期，单季业绩预告环比改善。<br><br> | 来源：<code>https://moguwang.com.cn
+</code></p><br><br><h3>郑钦文闯入温网女单决赛，创中国网球选手大满贯单打最佳战绩</h3><br><p>机器人赛道持续升温：核心零部件、整机制造的投资机会。<br><br> | 来源：<code>https://mrds-mrds.com.cn
+</code></p><br><br><h3>电影产业促进法修订，影视院线板块走强</h3><br><p>保利发展土储优势：核心城市优质土储的长期价值释放。<br><br> | 来源：<code>https://mu-jiaoshi.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍</h3><br><p>英伟达发布新一代AI芯片，算力板块再度走强。<br><br> | 来源：<code>https://mugua-shipin.com.cn
+</code></p><br><br><h3>新能源赛道集体反弹：动力电池、光伏、储能谁是领涨主线</h3><br><p>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入。<br><br> | 来源：<code>https://mugua-yingyuan.com.cn
+</code></p><br><br><h3>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>https://muguamanhua.com.cn
+</code></p><br><br><h3>全国非遗工坊超5000家，带动百万群众就业增收</h3><br><p>宝钢股份企稳回升，低位标的的补涨机会分析。<br><br> | 来源：<code>https://muguawanguanwang.com.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>中国中冶冶金工程优势：新能源冶金赛道的领先地位。<br><br> | 来源：<code>https://muguawanwangye.com.cn
+</code></p><br><br><h3>快递行业监管优化，快递龙头标的全线拉升</h3><br><p>美联储降息后大宗商品集体上涨，有色板块全线异动。<br><br> | 来源：<code>https://muguazhibo.com.cn
+</code></p><br><br><h3>机构席位大额买入拓普集团9200万，零部件龙头获长线布局</h3><br><p>纸价开启新一轮提价潮，造纸板块盈利迎来修复。<br><br> | 来源：<code>https://muzi-zhuang.com.cn
+</code></p><br><br><h3>全国文旅市场监管加强，查处超千家违规经营旅行社</h3><br><p>全国中医药服务覆盖所有社区，中医馆成为基层医疗标配。<br><br> | 来源：<code>https://nai-paodongman.com.cn
+</code></p><br><br><h3>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善</h3><br><p>山西汾酒涨超5.1%，青花系列全国化推进加速。<br><br> | 来源：<code>https://naimadongman.com.cn
+</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>洋河梦之蓝批价上调4%，白酒全产业链盈利优化。<br><br> | 来源：<code>https://naipaodongman.com.cn
