@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分15秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内大模型行业应用案例破百万，覆盖千行百业</h3><br><p>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报。<br><br> | 来源：<code>https://lansexiao.com.cn
+</code></p><br><br><h3>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增</h3><br><p>料酒价格上涨4%，调味品细分板块迎来行情。<br><br> | 来源：<code>https://lao-se-ge.com.cn
+</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善。<br><br> | 来源：<code>https://laosijibumilu.org.cn
+</code></p><br><br><h3>零跑汽车异动拉升7.9%，性价比车型销量爆发</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://laosijimanhua.org.cn
+</code></p><br><br><h3>“双减”成效显著，校外违规培训机构清零率超98%</h3><br><p>北方稀土稀土量价齐升，前三季度业绩预增超50%。<br><br> | 来源：<code>https://leplayqiumi.com.cn
+</code></p><br><br><h3>长三角一体化新规划落地，长三角本地股集体拉升</h3><br><p>音乐节市场上半年演出超500场，年轻群体消费占比超80%。<br><br> | 来源：<code>https://li-zong-rui.com.cn
+</code></p><br><br><h3>存款利率下调后居民储蓄搬家，A股新增开户数环比大增</h3><br><p>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏。<br><br> | 来源：<code>https://liaoheishequ.com.cn
+</code></p><br><br><h3>国产儿童动画全网播放量突破250亿，陪伴新一代青少年成长</h3><br><p>定向降息支持绿色电力，绿电运营板块获定向利好。<br><br> | 来源：<code>https://lidongmanfan.com.cn
+</code></p><br><br><h3>实控人兜底式增持固态电池企业，员工响应参与比例超90%</h3><br><p>央行表态加大逆周期调节，后续仍有降准降息空间。<br><br> | 来源：<code>https://lifanzaixianmianfei.com.cn
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>国内降准政策落地，大金融板块全线拉升。<br><br> | 来源：<code>https://lishuanger.com.cn
+</code></p><br><br><h3>卫星互联网频率分配落地，卫星制造板块集体上涨</h3><br><p>降准释放资金定向支持基建，基建板块迎来流动性利好。<br><br> | 来源：<code>https://liuhecai-wangzhan.com.cn
+</code></p><br><br><h3>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道</h3><br><p>美的集团海外收入高增，前三季度业绩预增超25%。<br><br> | 来源：<code>https://liujiaoqin.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>游资知名席位联手买入中远海控7500万，集运标的获追捧。<br><br> | 来源：<code>https://liumang-shipin.com.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破1.5万亿元，赛事经济火热</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://lou-fengluntan.cn
+</code></p><br><br><h3>铜价创半年新高，铜业上市公司盈利迎来边际改善</h3><br><p>沪股通席位单日买入华友钴业8100万，新能源金属标的增持。<br><br> | 来源：<code>https://lqoax.cn
+</code></p><br><br><h3>正邦科技放量上涨4.5%，债务重组进展顺利</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>https://lu-lu-she.com.cn
+</code></p><br><br><h3>汽车数据安全管理新规，汽车软件板块集体上涨</h3><br><p>美联储降息周期开启，黄金珠宝板块迎来趋势性行情。<br><br> | 来源：<code>https://lu-lushe.com.cn
+</code></p><br><br><h3>华为Mate70销量破千万，消费电子产业链全线异动</h3><br><p>中国女子棒球队闯入世界杯八强，项目发展迎来新机遇。<br><br> | 来源：<code>https://lu-lusheguanwang.com.cn
+</code></p><br><br><h3>卓胜微放量拉升5.7%，射频芯片行业景气度回升</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https://lulu-she.com.cn
+</code></p><br><br><h3>宝钢股份企稳回升，钢铁行业盈利预期边际改善</h3><br><p>大模型在电商领域应用，AI生成商品详情页效率提升10倍。<br><br> | 来源：<code>https://lulu-sheguanwang.com.cn
