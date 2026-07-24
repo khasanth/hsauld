@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分12秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>青海湖暑期环湖游热度飙升，自驾游客占比超80%</h3><br><p>北方稀土稀土全产业链布局：国内稀土龙头的政策红利。<br><br> | 来源：<code>https://douhuashipinguanwang.org.cn
+</code></p><br><br><h3>国产AI芯片算力突破256TOPS，支撑大模型高效运行</h3><br><p>超180家机构到访汽车轻量化标的，一体化压铸产能释放。<br><br> | 来源：<code>https://douhuashipinrukouguanwang.org.cn
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>超200家机构到访数据要素龙头，数据确权商业模式落地。<br><br> | 来源：<code>https://douhuashipinwangyeban.org.cn
+</code></p><br><br><h3>中国轮滑队世锦赛包揽全部金牌，优势项目持续领跑世界</h3><br><p>产业资本连续增持储能温控龙头，产业链上下游协同布局。<br><br> | 来源：<code>https://douhuashipinzaixianbofang.org.cn
+</code></p><br><br><h3>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>https://douhuashipinzaixianguankan.org.cn
+</code></p><br><br><h3>机构专用席位净买入韦尔股份1.5亿，CIS芯片龙头获长线加仓</h3><br><p>全国轮滑锦标赛举办，参赛选手破万年龄跨度覆盖3-70岁。<br><br> | 来源：<code>https://doumanwangyeban.cn
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>机构资金联手买入浪潮信息3.3亿，AI服务器龙头获机构抱团。<br><br> | 来源：<code>https://dounianglishi.cn
+</code></p><br><br><h3>北向资金单日买入陕西煤业6800万，煤炭龙头获外资流入</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>https://doupojiebanyin.cn
+</code></p><br><br><h3>长鑫存储DDR5产能释放，内存芯片标的集体上涨</h3><br><p>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇。<br><br> | 来源：<code>https://douyinapp.com.cn
+</code></p><br><br><h3>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善</h3><br><p>国内高端旅游产品走俏，定制游订单同比增长90%。<br><br> | 来源：<code>https://douyinapp.net.cn
+</code></p><br><br><h3>华为Mate70销量破千万，消费电子产业链全线异动</h3><br><p>通用人工智能创新平台落地，大模型标的拉升。<br><br> | 来源：<code>https://douyinchengrenban.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆</h3><br><p>德国工业产出环比增长1.2%，制造业显现复苏迹象。<br><br> | 来源：<code>https://douyinduanshipin.com.cn
+</code></p><br><br><h3>哈尔滨冰雪旅游提前预热，暑期冰雪乐园订单同比增长80%</h3><br><p>先导智能技术积累：锂电设备全球龙头的核心竞争力。<br><br> | 来源：<code>https://douyinpro.cn
+</code></p><br><br><h3>全球元宇宙相关产业规模突破2万亿美元，应用场景拓展</h3><br><p>阳光电源技术迭代能力：逆变器龙头的全球竞争力。<br><br> | 来源：<code>https://douyinshipin.com.cn
+</code></p><br><br><h3>10年期国债收益率下行，保险板块配置压力边际缓解</h3><br><p>外资资管连续加仓跨境支付标的，近3月持仓占比提升至6%。<br><br> | 来源：<code>https://douyinwangyerukou.cn
+</code></p><br><br><h3>德业股份异动拉升6.8%，储能逆变器盈利超预期</h3><br><p>产业资本集中增持AI教育龙头，付费用户高增获资本布局。<br><br> | 来源：<code>https://dumoguceshi.com.cn
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>全国乡村旅游重点村超千家，带动千万农民家门口就业。<br><br> | 来源：<code>https://dumoguceshixingneng.com.cn
+</code></p><br><br><h3>全国居民人均体育消费支出同比增长15%，运动成为生活方式</h3><br><p>AI代码助手普及，程序员开发效率平均提升40%。<br><br> | 来源：<code>https://eb-official-entry.com
+</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅。<br><br> | 来源：<code>https://ebpay-official-download.com
+</code></p><br><br><h3>教育部发布新规，义务教育阶段课后服务实现全覆盖</h3><br><p>山西汾酒全国化加速，前三季度业绩预增超35%。<br><br> | 来源：<code>https://eluosi-mama.com.cn
