@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>酱油价格单月上涨5%，调味品龙头盈利弹性释放</h3><br><p>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入。<br><br> | 来源：<code>www.cqxsx.cn
+</code></p><br><br><h3>全国滑板锦标赛举办，年轻选手展现街头运动活力</h3><br><p>蔚来汽车换电模式优势：高端新能源车企的差异化壁垒。<br><br> | 来源：<code>www.gmsz.cn
+</code></p><br><br><h3>江淮汽车异动拉升4.7%，与华为合作车型落地加速</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>0315etu.com
+</code></p><br><br><h3>全国抽水蓄能电站装机容量突破8000万千瓦，储能能力提升</h3><br><p>预制菜产业标准出台，预制菜板块走强。<br><br> | 来源：<code>streamnet-chain.com
+</code></p><br><br><h3>QFII集中调研休闲食品龙头，线下渠道复购率数据公开</h3><br><p>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发。<br><br> | 来源：<code>mmdez.com
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>linjincheng.cn
+</code></p><br><br><h3>全国文化和旅游消费试点城市扩围，打造百个消费标杆城市</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>51jieyan.cn
+</code></p><br><br><h3>风电并网消纳政策优化，风电运营板块全线走强</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>0357linfen.cn
+</code></p><br><br><h3>大金重工塔筒出口翻倍，单季业绩预告超预期</h3><br><p>药明康德单日涨超5%，CXO板块迎来情绪拐点。<br><br> | 来源：<code>goosn.cn
+</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>机器人减速器标的启动申购，谐波减速器国产替代率突破50%。<br><br> | 来源：<code>jjdianqi.cn
+</code></p><br><br><h3>东莞控股放量上涨2.2%，珠三角车流量高增</h3><br><p>安琪酵母放量上涨3.6%，海外市场拓展超预期。<br><br> | 来源：<code>dongfangyu.com.cn
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情。<br><br> | 来源：<code>njaimu.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>qiujob.com
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩。<br><br> | 来源：<code>soteam.cn
+</code></p><br><br><h3>智能网联汽车准入试点落地，车路协同标的拉升</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>shadowrobot.cn
+</code></p><br><br><h3>全国生态保护红线划定完成，覆盖超三分之一陆域面积</h3><br><p>杭州马拉松开跑，3.5万跑者体验钱塘江赛道。<br><br> | 来源：<code>shzhonglv.cn
+</code></p><br><br><h3>大模型在航空领域应用，飞行模拟训练效率提升30%</h3><br><p>广深铁路放量上涨3.1%，铁路客运收入回暖。<br><br> | 来源：<code>guoguangjixie.cn
+</code></p><br><br><h3>实控人邀约收购中药创新药企业，溢价35%发起全面要约</h3><br><p>汽车零部件赛道景气度上行：细分方向机会全梳理。<br><br> | 来源：<code>bieyao.cn
+</code></p><br><br><h3>中国茶文化申遗成功，成为人类非物质文化遗产代表作</h3><br><p>特斯拉FSD落地中国，自动驾驶板块集体拉升。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>新型电力系统建设规划，电力设备板块走强</h3><br><p>东方电缆异动拉升5.2%，海缆订单持续落地。<br><br> | 来源：<code>ykyxz.cn
