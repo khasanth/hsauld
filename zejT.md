@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>AI数字人直播常态化，超十万直播间启用AI虚拟主播</h3><br><p>国产悬疑剧全网播放量突破300亿，现实题材作品广受好评。<br><br> | 来源：<code>https://zhongying-zygjb-official.com
+</code></p><br><br><h3>国内短视频带火小众景点，超300个县域景点成网红打卡地</h3><br><p>自由贸易试验区扩围，自贸港本地股异动。<br><br> | 来源：<code>https://zhongziwuma.net.cn
+</code></p><br><br><h3>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势</h3><br><p>科大讯飞冲高回落，AI算力主线分歧中仍有韧性。<br><br> | 来源：<code>https://zhuce-song-cai-jin.com.cn
+</code></p><br><br><h3>重庆建工涨超3.2%，西部基建投资持续加码</h3><br><p>全球半导体产业周期复苏，销售额同比增长18%创历史新高。<br><br> | 来源：<code>https://zi-paitoupai.com.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>阳光电源异动拉升6.6%，储能逆变器份额全球第一。<br><br> | 来源：<code>https://zipaitoupai.com.cn
+</code></p><br><br><h3>国电南瑞电力数字化：新型电力系统建设下的长期受益</h3><br><p>生成式AI服务管理细则，AI应用板块情绪修复。<br><br> | 来源：<code>https://ziweishipin.cn
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>杭州亚运会一周年纪念活动举办，场馆全年接待健身人次破亿。<br><br> | 来源：<code>https://ziweishipin.net.cn
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>https://zpkaz.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿</h3><br><p>正泰电器放量上涨3.7%，户用光伏装机量领先。<br><br> | 来源：<code>https://zqbub.cn
+</code></p><br><br><h3>中老铁路跨境游火爆，昆明至曼谷旅游团一票难求</h3><br><p>全国县域旅游百强县榜单发布，江浙地区占比超六成。<br><br> | 来源：<code>https://zuixin-wangzhi.com.cn
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>全国社区运动会覆盖千城，群众家门口参与体育赛事。<br><br> | 来源：<code>https://zuixinfabuye.com.cn
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>北向资金举牌冷链物流标的，生鲜配送网络扩张获外资流入。<br><br> | 来源：<code>https://zukongwu.com.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>人民币汇率升值叠加美联储降息，航空造纸板块集体异动。<br><br> | 来源：<code>https://zuoai-shipin.com.cn
+</code></p><br><br><h3>万科A地产行业格局：龙头房企的抗风险能力与复苏空间</h3><br><p>休闲食品开启涨价潮，食品加工板块盈利弹性释放。<br><br> | 来源：<code>https://zuoshanai.com.cn
+</code></p><br><br><h3>宁夏沙坡头暑期沙漠游热度高，日均接待游客超3万人次</h3><br><p>大模型在电商领域应用，AI生成商品详情页效率提升10倍。<br><br> | 来源：<code>https://zuozuomu-ming-xi.com.cn
+</code></p><br><br><h3>英伟达发布新一代AI芯片，算力板块再度走强</h3><br><p>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%。<br><br> | 来源：<code>https://zurbda.cn
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>梅花生物氨基酸价格反弹，前三季度业绩预增超40%。<br><br> | 来源：<code>https://008-pg-official-login.com
+</code></p><br><br><h3>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓</h3><br><p>林业碳汇交易政策，林业运营标的全线异动。<br><br> | 来源：<code>https://008pg-guoji-app.com
+</code></p><br><br><h3>机器人减速器标的启动申购，谐波减速器国产替代率突破50%</h3><br><p>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生。<br><br> | 来源：<code>https://1024hegongchang.com.cn
+</code></p><br><br><h3>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及</h3><br><p>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%。<br><br> | 来源：<code>https://1024xp.com.cn
