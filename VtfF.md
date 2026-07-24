@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分06秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宝钢股份板材盈利修复，前三季度业绩预增超30%</h3><br><p>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓。<br><br> | 来源：<code>https://zhenren-sports-hub.com.cn
+</code></p><br><br><h3>世界乒乓球锦标赛中国队包揽5金，延续国乒辉煌</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>https://zhibo-zuoai.com.cn
+</code></p><br><br><h3>存量房贷利率下调释放万亿现金流，可选消费板块弹性最大</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>https://zhiguangzaixian.org.cn
+</code></p><br><br><h3>山东高速区域路网优势：山东公路运营龙头的稳健经营</h3><br><p>西藏暑期游客量突破200万人次，高原旅游热度创新高。<br><br> | 来源：<code>https://zhiguangzaixianguankan.org.cn
+</code></p><br><br><h3>房贷利率动态调整机制优化，重点城市房贷利率进一步下行</h3><br><p>仓位管理是生存之本：满仓梭哈的人，迟早会被市场淘汰。<br><br> | 来源：<code>https://zhongwenzimu-rihan.com.cn
+</code></p><br><br><h3>全国文旅消费投诉量同比下降30%，市场秩序持续优化</h3><br><p>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张。<br><br> | 来源：<code>https://zhongwenzimuri-han.com.cn
+</code></p><br><br><h3>高股息板块持续受宠：银行、保险、煤炭的配置价值分析</h3><br><p>天齐锂业触底反弹，超跌后的修复空间测算。<br><br> | 来源：<code>https://zhongwenzimurihan.com.cn
+</code></p><br><br><h3>高管团队集体增持低空飞行器标的，合计增持超7000万</h3><br><p>量子通信标的启动申购，干线网络建设订单同比翻倍。<br><br> | 来源：<code>https://zhongying-guoji-web.com
+</code></p><br><br><h3>铜版纸价格单月上涨7%，造纸细分板块迎来行情</h3><br><p>超210家机构到访AI安防龙头，海外政府订单同比大增。<br><br> | 来源：<code>https://zhongying-zygjb-official.com
+</code></p><br><br><h3>良渚古城遗址新发现大型水利工程，实证5000年文明史</h3><br><p>天邦食品减亏路径：养殖行业周期底部的经营优化逻辑。<br><br> | 来源：<code>https://zhongziwuma.net.cn
+</code></p><br><br><h3>中国铁建全球工程布局：轨交基建龙头的海外市场拓展</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>https://zhuce-song-cai-jin.com.cn
+</code></p><br><br><h3>AIGC内容监管细则出台，AI内容标的集体拉升</h3><br><p>中国射箭队世锦赛打破世界纪录，首次夺得团体金牌。<br><br> | 来源：<code>https://zi-paitoupai.com.cn
+</code></p><br><br><h3>全面降准叠加LPR下调，市场流动性环境显著优化</h3><br><p>平高电气特高压开关技术：输配电设备龙头的国产替代。<br><br> | 来源：<code>https://zipaitoupai.com.cn
+</code></p><br><br><h3>剧本杀门店超5万家，沉浸式文旅体验成为年轻消费热点</h3><br><p>特变电工多晶硅布局：新能源全产业链的协同成长逻辑。<br><br> | 来源：<code>https://ziweishipin.cn
+</code></p><br><br><h3>全国乡村旅游重点村超千家，带动千万农民家门口就业</h3><br><p>被动元器件价格集体上涨，电子板块盈利边际改善。<br><br> | 来源：<code>https://ziweishipin.net.cn
+</code></p><br><br><h3>荷兰经济避免衰退，服务业支撑经济稳定增长</h3><br><p>央行逆回购操作利率下调，短期资金面维持宽松。<br><br> | 来源：<code>https://zpkaz.cn
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>明阳智能大兆瓦风机放量，单季业绩预告超预期。<br><br> | 来源：<code>https://zqbub.cn
+</code></p><br><br><h3>低空旅游市场爆发，上半年直升机观光订单同比增长200%</h3><br><p>动力电池回收管理办法出台，锂电回收板块全线异动。<br><br> | 来源：<code>https://zuixin-wangzhi.com.cn
+</code></p><br><br><h3>光伏行业产能置换政策落地，落后产能出清标的异动</h3><br><p>平高电气特高压开关技术：输配电设备龙头的国产替代。<br><br> | 来源：<code>https://zuixinfabuye.com.cn
+</code></p><br><br><h3>多地景区推出免票政策，国有A级景区免票覆盖超300家</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益。<br><br> | 来源：<code>https://zukongwu.com.cn
