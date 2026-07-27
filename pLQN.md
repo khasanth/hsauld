@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>东方电缆海缆技术壁垒：海上风电海缆龙头的领先地位</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>生物医药产业创新政策，CXO板块全线异动。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>5年期LPR下调15BP，地产链估值修复行情延续。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>外资机构席位净买入江铃汽车4600万，轻卡龙头获外资加仓</h3><br><p>北方稀土异动拉升，稀土永磁行业供需格局优化。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>快递行业监管优化，快递龙头标的全线拉升</h3><br><p>镍价单月上涨11%，不锈钢板块迎来涨价催化。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>全球航运市场回暖，集装箱运价指数回升至合理区间。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>中国女子柔道队世锦赛斩获2金，奥运备战扎实推进</h3><br><p>电阻产品价格上调4%，被动元件板块迎来行情。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>上半年全国文旅消费总额突破3万亿元，同比增长22%</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%</h3><br><p>保险资管扎堆调研机器人减速器标的，产能释放进度披露。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大</h3><br><p>6G技术研发加速：通信设备、射频器件的布局窗口。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>全国运动康复中心超万家，运动损伤诊疗体系逐步完善</h3><br><p>人民币对美元汇率升值至6.7关口，外汇储备规模稳定在3.3万亿美元。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>中国中车异动拉升，一带一路订单持续释放</h3><br><p>上半年全国跨境电商进出口额同比增长15%，新业态活力迸发。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>知名私募大手笔增持数字人民币标的，持仓占比突破3%</h3><br><p>实控人邀约收购中药创新药企业，溢价35%发起全面要约。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>全国祁连山生态保护修复完成，矿区全部恢复植被覆盖</h3><br><p>中国游泳队世锦赛斩获7金，打破3项世界纪录。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>上半年全国战略性新兴产业增加值同比增长9.3%。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>多地推出“文旅+农业”融合项目，采摘游订单同比增长80%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>市场情绪疯狂时要冷静，情绪低迷时要保持信心</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>社保基金新进生物育种标的，布局农业科技长期成长</h3><br><p>小鹏汽车单季交付破3万，业绩亏损大幅收窄。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>全国二手车交易量上半年突破1000万辆，流通市场活跃</h3><br><p>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>2026年体育强国建设成效显著，全民健身与全民健康深度融合</h3><br><p>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>恒瑞医药异动拉升5.6%，创新药新品贡献增量。<br><br> | 来源：<code>www.azi-cbt.com
