@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分34秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>百度文心大模型4.5版本发布，推理速度提升400%成本下降70%</h3><br><p>海产品全产业链涨价，水产板块全面异动。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>国际黄金价格回升至2100美元/盎司，避险需求再度升温</h3><br><p>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域</h3><br><p>北向资金连续加仓东方财富，互联网券商获外资持续流入。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>电影产业促进法修订，影视院线板块走强</h3><br><p>房地产融资白名单出台，优质房企板块走强。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>国内在线旅游平台暑期订单破5亿，技术赋能提升预订效率</h3><br><p>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>生猪收储政策启动，养殖板块迎来反弹催化。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>美联储降息后美债收益率下行，外资回流中国权益市场。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>社保基金新进生物育种标的，布局农业科技长期成长</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>中远海控行业周期复盘：集运行业的供需格局长期演变</h3><br><p>三一重工全球化布局：工程机械龙头的第二增长曲线。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>大模型在文创领域应用，AI生成剧本、音乐成行业常态</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>四川成渝放量上涨2.3%，区域路网业务持续向好。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值</h3><br><p>先导智能技术积累：锂电设备全球龙头的核心竞争力。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>海绵城市建设推广，海绵城市板块集体上涨</h3><br><p>全国太湖流域蓝藻水华防控成效显著，水质稳定达标。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>啤酒开启新一轮涨价潮，啤酒板块盈利弹性释放</h3><br><p>上半年全国医药制造业利润同比增长13%，创新药贡献突出。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护</h3><br><p>长白山暑期避暑游热度高，日均接待游客超2万人次。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>产业资本连续增持智能电网标的，特高压产业链获资本布局</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>控股股东耗资4亿增持算力租赁标的，回购注销增厚每股收益</h3><br><p>容百科技放量拉升5.5%，高镍正极渗透率持续提升。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>固态电池试点线投产，固态电池产业链集体异动</h3><br><p>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升</h3><br><p>大模型安全国家标准发布，行业合规发展有章可循。<br><br> | 来源：<code>www.qzu.zj.cn
