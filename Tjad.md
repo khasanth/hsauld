@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>梅花生物异动拉升3.1%，氨基酸产品价格反弹</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>百亿私募组团调研光模块企业，1.6T产品送样海外客户</h3><br><p>全球航运市场回暖，集装箱运价指数回升至合理区间。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中国男子110米栏小将跑出12秒90，接班刘翔创造新历史</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>养老金现身光刻胶标的，ArF胶通过客户验证进度超预期。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>江淮汽车异动拉升4.7%，与华为合作车型落地加速</h3><br><p>香港高校内地招生扩容500名额，新增大湾区相关特色专业。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>教育改革与人才发展（100条）</h3><br><p>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>百亿私募组团调研碳化硅企业，车规级器件量产线投产</h3><br><p>全国医保目录新增126种新药，涵盖多款罕见病特效药。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全国古籍保护工程完成，超3000万册古籍得到妥善修复</h3><br><p>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>存储模组龙头登陆科创板，AI存储产品出货量超行业预期</h3><br><p>南京夫子庙暑期客流超2000万，秦淮夜游营收同比翻倍。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>纸价开启新一轮提价潮，造纸板块盈利迎来修复</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团</h3><br><p>先导智能跳空高开6.1%，锂电设备海外订单爆发。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光</h3><br><p>中国女子冰球队世锦赛升组，重返顶级赛事行列。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>阳光电源异动拉升6.6%，储能逆变器份额全球第一</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>山西路桥放量上涨3.2%，山西交通基建投资加码</h3><br><p>游资知名席位联手买入中国船舶2亿，造船标的获资金追捧。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>全国滑板锦标赛举办，年轻选手展现街头运动活力</h3><br><p>联合国可持续发展目标中期评估，明确后续行动路径。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>成都推出“文旅+美食”线路，带动餐饮营收同比增长50%</h3><br><p>隆平高科种业业务爆发，前三季度业绩预增超50%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮</h3><br><p>中际旭创光模块技术优势：全球数通市场的份额扩张。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>京东言犀大模型供应链版上线，助力电商降本增效</h3><br><p>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线。<br><br> | 来源：<code>www.jyylj.com
