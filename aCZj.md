@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分39秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期</h3><br><p>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿。<br><br> | 来源：<code>https://zhengtu-guoji-app.com
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>全国商品房待售面积同比下降4.3%，库存去化周期回归合理区间。<br><br> | 来源：<code>https://zhengtu-guoji-entry.com
+</code></p><br><br><h3>全球可再生能源投资首次超过化石能源，能源转型拐点到来</h3><br><p>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%。<br><br> | 来源：<code>https://zhengtu-guoji.com.cn
+</code></p><br><br><h3>企业债券融资利率大幅下行，直接融资占比进一步提升</h3><br><p>东方电气风电设备订单爆发，前三季度业绩预增超35%。<br><br> | 来源：<code>https://zhenren-sports-hub.com.cn
+</code></p><br><br><h3>全国夜间体育赛事活动超千场，赛事经济带动周边消费</h3><br><p>F1中国大奖赛上海站落幕，周冠宇获本土最佳第四名创历史。<br><br> | 来源：<code>https://zhibo-zuoai.com.cn
+</code></p><br><br><h3>小鹏汽车异动拉升9.2%，新车型交付量超预期</h3><br><p>多地文旅部门推出“先游后付”服务，提升游客消费体验。<br><br> | 来源：<code>https://zhiguangzaixian.org.cn
+</code></p><br><br><h3>高管团队集体增持低空飞行器标的，合计增持超7000万</h3><br><p>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好。<br><br> | 来源：<code>https://zhiguangzaixianguankan.org.cn
+</code></p><br><br><h3>全国心理健康服务体系覆盖所有高校，心理疏导惠及千万学生</h3><br><p>网易有道教育大模型落地，AI个性化学习系统覆盖千万学生。<br><br> | 来源：<code>https://zhongwenwumazaixianbofang.cn
+</code></p><br><br><h3>地方国资战略入股氢能燃料电池标的，助力商用车推广落地</h3><br><p>智飞生物异动拉升4.9%，疫苗产品批签发量回升。<br><br> | 来源：<code>https://zhongwenzimu-rihan.com.cn
+</code></p><br><br><h3>包装纸价格上涨5%，包装板块成本端压力传导顺畅</h3><br><p>宝钢股份企稳回升，低位标的的补涨机会分析。<br><br> | 来源：<code>https://zhongwenzimuri-han.com.cn
+</code></p><br><br><h3>存款利率下调推动理财收益率下行，权益基金发行回暖</h3><br><p>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加。<br><br> | 来源：<code>https://zhongwenzimurihan.cn
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>奥地利经济复苏，旅游业和制造业双回暖。<br><br> | 来源：<code>https://zhongwenzimurihan.com.cn
+</code></p><br><br><h3>深圳马拉松开跑，3万跑者穿越滨海赛道展现城市活力</h3><br><p>草原生态保护政策，草牧业板块全线拉升。<br><br> | 来源：<code>https://zhongying-guoji-web.com
+</code></p><br><br><h3>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域</h3><br><p>中国平安涨超3.4%，寿险新业务价值增速转正。<br><br> | 来源：<code>https://zhongying-zygjb-official.com
+</code></p><br><br><h3>招商银行沿20日均线上行，稳健标的的持仓节奏</h3><br><p>知名私募调研钠电池龙头，量产线投产时间点首次公开。<br><br> | 来源：<code>https://zhongzisousuo.com.cn
+</code></p><br><br><h3>山东高速区域路网优势：山东公路运营龙头的稳健经营</h3><br><p>QFII集中调研医药流通龙头，院外市场拓展节奏披露。<br><br> | 来源：<code>https://zhongziwuma.net.cn
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>福建高速异动拉升2.2%，海西地区车流量回暖。<br><br> | 来源：<code>https://zhuce-song-cai-jin.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>上半年全国智能手机出货量同比增长7%，国产品牌占比提升。<br><br> | 来源：<code>https://zi-paitoupai.com.cn
+</code></p><br><br><h3>半导体产业扶持基金落地，大基金二期标的全线拉升</h3><br><p>超150家机构到访工业机器人标的，产能利用率突破90%。<br><br> | 来源：<code>https://zipaitoupai.com.cn
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>https://ziweishipin.cn
