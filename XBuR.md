@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分42秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健</h3><br><p>全面降准叠加LPR下调，市场流动性环境显著优化。<br><br> | 来源：<code>https://dapiguzuowen.com.cn
+</code></p><br><br><h3>生成式AI服务管理细则，AI应用板块情绪修复</h3><br><p>全国垃圾分类覆盖率达92%，资源化利用率提升至38%。<br><br> | 来源：<code>https://dapipi.com.cn
+</code></p><br><br><h3>5年期LPR超预期下调，房企融资环境边际改善</h3><br><p>中国排球队世界联赛夺冠，三大球集体项目重回巅峰。<br><br> | 来源：<code>https://dayanghei.com.cn
+</code></p><br><br><h3>固德威户用储能布局：储能赛道细分龙头的成长路径</h3><br><p>机构+北向合力买入思源电气5200万，电网设备标的布局。<br><br> | 来源：<code>https://dianfeng-guoji.com.cn
+</code></p><br><br><h3>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米</h3><br><p>企业融资成本创历史新低，制造业投资增速回升。<br><br> | 来源：<code>https://dianying-zaixianguankanmianfei.com.cn
+</code></p><br><br><h3>1年期MLF利率下调带动全市场利率下行，债券牛市延续</h3><br><p>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及。<br><br> | 来源：<code>https://dianyingcang.com.cn
+</code></p><br><br><h3>降准释放资金补充银行流动性，信贷投放能力显著提升</h3><br><p>北方稀土稀土量价齐升，前三季度业绩预增超50%。<br><br> | 来源：<code>https://dingsheng-5262-web.com
+</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://diyiban-zhu.cn
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>存款利率市场化改革深化，银行负债成本持续优化。<br><br> | 来源：<code>https://diyici-derenqi.com.cn
+</code></p><br><br><h3>北向资金举牌广告营销龙头，AI营销高增获外资持续流入</h3><br><p>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场。<br><br> | 来源：<code>https://diyiciderenqi.com.cn
+</code></p><br><br><h3>大模型轻量化部署方案成熟，中小企业接入成本下降90%</h3><br><p>市场永远不缺机会，缺的是耐心等待属于自己的机会。<br><br> | 来源：<code>https://diyiciderenqidongman.com.cn
+</code></p><br><br><h3>多地推出“文旅+科技”项目，元宇宙景区落地超100家</h3><br><p>中国棒球队首次晋级世界杯决赛圈，棒球运动迎来新发展。<br><br> | 来源：<code>https://diyicirenqi.com.cn
+</code></p><br><br><h3>存量房贷利率集中下调，居民消费能力有望边际改善</h3><br><p>基金公司集体到访氢能龙头，燃料电池车推广进度超预期。<br><br> | 来源：<code>https://diyifuli.cn
+</code></p><br><br><h3>固德威户用储能布局：储能赛道细分龙头的成长路径</h3><br><p>机构席位大额买入中国中铁6500万，基建龙头获长线布局。<br><br> | 来源：<code>https://diyifuli.com.cn
+</code></p><br><br><h3>全国煤化工行业低碳改造完成，碳排放强度下降20%</h3><br><p>铁矿石价格反弹10%，铁矿上市公司盈利边际改善。<br><br> | 来源：<code>https://diyifulidaohang.cn
+</code></p><br><br><h3>化肥价格集体上涨，农资板块迎来产品涨价催化</h3><br><p>国内AI算力租赁市场规模破千亿，中小企业轻松获取算力。<br><br> | 来源：<code>https://diyixueshufulidaohangwang.cn
+</code></p><br><br><h3>华为Mate70销量破千万，消费电子产业链全线异动</h3><br><p>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级。<br><br> | 来源：<code>https://dizhifabuye.com.cn
+</code></p><br><br><h3>赣锋锂业放量上涨，固态电池技术落地加速</h3><br><p>安凯客车涨超4.3%，客车出口订单同比增长。<br><br> | 来源：<code>https://dl-kaiyun-app.com.cn
+</code></p><br><br><h3>上海推出“夜生活节”，夜间商户营业额同比增长60%</h3><br><p>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断。<br><br> | 来源：<code>https://dl-kaiyun-pro.com.cn
+</code></p><br><br><h3>中国神华创阶段新高2.8%，高股息属性持续获资金追捧</h3><br><p>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大。<br><br> | 来源：<code>https://dl-kaiyun-sports.com.cn
