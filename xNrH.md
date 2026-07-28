@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>https://17cyiqicao.com.cn
+</code></p><br><br><h3>产业资本集中增持AI教育龙头，付费用户高增获资本布局</h3><br><p>海大集团涨超3.5%，饲料业务市占率稳步提升。<br><br> | 来源：<code>https://17cyiqicaoguoguankanwanzhengban.com.cn
+</code></p><br><br><h3>航发动力放量拉升5.2%，军工发动机订单落地加速</h3><br><p>注册制全面落地，券商投行业务标的全线拉升。<br><br> | 来源：<code>https://17cyiqicaorukou.com.cn
+</code></p><br><br><h3>联合国可持续发展目标中期评估，明确后续行动路径</h3><br><p>卫星互联网频率分配落地，卫星制造板块集体上涨。<br><br> | 来源：<code>https://17cyiqicaozaixianguankan.com.cn
+</code></p><br><br><h3>中国游泳队世锦赛斩获7金，打破3项世界纪录</h3><br><p>重庆建工涨超3.2%，西部基建投资持续加码。<br><br> | 来源：<code>https://17cyiqizaixianguankan.com.cn
+</code></p><br><br><h3>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍</h3><br><p>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%。<br><br> | 来源：<code>https://17qicaoshipin.com.cn
+</code></p><br><br><h3>存款利率连续下调，居民配置权益资产意愿持续增强</h3><br><p>海螺水泥涨超3.7%，基建投资增速回暖带动需求。<br><br> | 来源：<code>https://17yiqicao.com.cn
+</code></p><br><br><h3>德国工业产出环比增长1.2%，制造业显现复苏迹象</h3><br><p>正泰电器户用光伏装机超预期，前三季度业绩预增超25%。<br><br> | 来源：<code>https://18-wangzhan.com.cn
+</code></p><br><br><h3>5年期LPR下调带动居民购房意愿回升，地产销售边际改善</h3><br><p>济南趵突泉暑期“趵突腾空”景观持续，日均客流超10万。<br><br> | 来源：<code>https://1996-zhicheng-guoji.com
+</code></p><br><br><h3>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>https://2026worldcup-guanwang-vip.com
+</code></p><br><br><h3>中国田径队世锦赛斩获3金，男子跳远打破尘封20年纪录</h3><br><p>油气增储上产政策，油气设备板块集体上涨。<br><br> | 来源：<code>https://2121-feifan-entry.com
+</code></p><br><br><h3>蚝油产品价格上调3%，调味品全产业链盈利优化</h3><br><p>京东言犀大模型供应链版上线，助力电商降本增效。<br><br> | 来源：<code>https://2121-feifan-official.com
+</code></p><br><br><h3>大模型在水利领域应用，洪水预警提前量提升至72小时</h3><br><p>维生素A价格单月上涨18%，饲料添加剂板块迎来行情。<br><br> | 来源：<code>https://2pg-login-reg.com
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>上半年全国社会物流总额同比增长5.6%，物流运行效率提升。<br><br> | 来源：<code>https://3dshipin.com.cn
+</code></p><br><br><h3>金砖国家新成员全部完成入盟流程，成员国总数达15国</h3><br><p>电源芯片价格上涨7%，模拟芯片板块景气回升。<br><br> | 来源：<code>https://432-yinghuang-app.com
+</code></p><br><br><h3>天然气价格季节性上涨，燃气运营板块异动</h3><br><p>四川成渝放量上涨2.3%，区域路网业务持续向好。<br><br> | 来源：<code>https://4688tv.com.cn
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，冰上项目实力稳固</h3><br><p>多地推出城市更新专项政策，年内撬动投资超万亿元。<br><br> | 来源：<code>https://51-anwang.com.cn
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>赣锋锂业涨超5.3%，固态电池试点线投产。<br><br> | 来源：<code>https://512vip-kaiyuan-official.com
+</code></p><br><br><h3>国产科幻小说海外获奖，中国想象力走向全球读者</h3><br><p>央行下调MLF利率10个基点，引导市场利率下行。<br><br> | 来源：<code>https://51chi-guawang.com.cn
+</code></p><br><br><h3>全国"无废城市"试点扩围至100个，固废资源化利用提速</h3><br><p>嫦娥探月工程新任务，航天科技产业链迎来催化。<br><br> | 来源：<code>https://51chiguayuming.com.cn
